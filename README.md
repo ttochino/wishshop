@@ -1,1 +1,1 @@
-# ttochino.github.io
+# https://ttochino.github.io/wishshop/
